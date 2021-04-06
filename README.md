@@ -1,1 +1,1 @@
-# pamoroz.github.io
+# PamOroz.github.io
